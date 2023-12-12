@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Furnok.
 - 👀 I’m interested in Developpement.
-- 🌱 I’m currently learning Programmation.
+- 🌱 I’m currently learning Gaming Programmation.
 - 💞️ I’m looking to collaborate.
 - 📫 How to reach me : killian.furno@orange.fr.
